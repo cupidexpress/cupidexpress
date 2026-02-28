@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://i.postimg.cc/s23HgVbw/263a2987425bf1de28873baf905a475e-removebg-preview.png" width="300"> <br/>dni if you don't like satosugu. i dont play abt them brother.. also i see them as canon i'll die on this hill<br/> <br/>
+<p align="center"> <img src="https://i.postimg.cc/s23HgVbw/263a2987425bf1de28873baf905a475e-removebg-preview.png" width="300"> <br/>"fudanshit" yup thats me<br/> <br/>
 <img src="https://adriansblinkiecollection.neocities.org/dividers/glitterstrawberries.gif">
 
 
